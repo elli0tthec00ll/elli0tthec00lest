@@ -1,8 +1,8 @@
-$\color{##7f4e2c}\huge\textsf{ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶}$
+$\color{##7f4e2c}\huge\textsf{︶˚̣̣̣ ◟ ͜ ◞˚̣̣̣ ︶𓏴︶˚̣̣̣ ◟ ͜ ◞˚̣̣̣ ︶}$
 
-$\color{##7f4e2c}\textsf{ྀི⊹ ࣪ ˖🕰️୭˚. ᵎᵎ🗝️}$
+$\color{##7f4e2c}\textsf{⊹ ࣪ ˖🕰️୭˚. ᵎᵎ🗝️}$
 
-$\color{##7f4e2c}\textsf{𝐻𝒶𝒾𝒾 𝒾’𝓂 𝒫𝒶𝓉𝒽𝑜𝓈 𝒢𝑒𝓃𝑒𝓈𝒾𝓈 , 𝒷𝓊𝓉 𝓎𝑜𝓊 𝒸𝒶𝓃 𝒸𝒶𝓁𝓁 𝓂𝑒 𝒫𝒶𝓉𝒽𝑜𝓈 ☕︎ .˚ (˶>⩊<˶)}$
+$\color{##7f4e2c}\textsf{Haii i'm pathis Genesis , But you can call me Pathos ☕︎ .˚ (˶>⩊<˶) }$
 
 $\color{##7f4e2c}\textsf{˙✧˖°🥐  𝒶 𝒷𝒾𝓉 𝒶𝒷𝑜𝓊𝓉 𝓂𝑒 ༘ ⋆｡˚}$
 
